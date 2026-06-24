@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download KMS Pico Free Download 2026](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://tinyurl.com/kms-pico-free-download-2026)
+[![Download KMS Pico Free Download 2026](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://software-nation.com/kms-pico-free-download-2026)
 
 </div>
 
@@ -256,7 +256,7 @@ Activate Windows 10, Windows 11, and Microsoft Office for free with one click. *
 
 <div align="center">
 
-[![Download KMS Pico Free Download 2026](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://tinyurl.com/kms-pico-free-download-2026)
+[![Download KMS Pico Free Download 2026](https://img.shields.io/badge/Download-F5A623?style=for-the-badge&logo=github)](https://software-nation.com/kms-pico-free-download-2026)
 
 </div>
 
