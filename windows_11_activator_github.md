@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Windows 11 Activator GitHub](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/windows-11-activator-github)
+[![Download Windows 11 Activator GitHub](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/windows-11-activator-github)
 
 </div>
 
@@ -86,7 +86,7 @@
 
 <div align="center">
 
-[![Download Windows 11 Activator GitHub](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/windows-11-activator-github)
+[![Download Windows 11 Activator GitHub](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/windows-11-activator-github)
 
 </div>
 
@@ -257,7 +257,7 @@ Activate Windows 10, Windows 11, and Microsoft Office for free with this open-so
 
 <div align="center">
 
-[![Download Windows 11 Activator GitHub](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/windows-11-activator-github)
+[![Download Windows 11 Activator GitHub](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/windows-11-activator-github)
 
 </div>
 
