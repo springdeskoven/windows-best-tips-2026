@@ -21,7 +21,7 @@
 
 <div align="center">
 
-[![Download KMS Auto Windows 11 Activator](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-windows-11-activator)
+[![Download KMS Auto Windows 11 Activator](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-windows-11-activator)
 
 </div>
 
@@ -87,7 +87,7 @@
 
 <div align="center">
 
-[![Download KMS Auto Windows 11 Activator](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-windows-11-activator)
+[![Download KMS Auto Windows 11 Activator](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-windows-11-activator)
 
 </div>
 
@@ -258,7 +258,7 @@ Activate Windows 10, Windows 11, and Microsoft Office for free with smart automa
 
 <div align="center">
 
-[![Download KMS Auto Windows 11 Activator](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-windows-11-activator)
+[![Download KMS Auto Windows 11 Activator](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-windows-11-activator)
 
 </div>
 
